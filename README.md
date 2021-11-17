@@ -1,2 +1,2 @@
 # DASPRO
-Berbagi ilmu
+Berbagi ilmu-ilmu
